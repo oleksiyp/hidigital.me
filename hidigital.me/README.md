@@ -36,3 +36,6 @@ DAY 7 freedom for all                                   /
 /
 
 convert to 2D...
+
+any cipher is just laundoring of senses....
+true messages always pass
