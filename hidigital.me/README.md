@@ -5,6 +5,15 @@ you thought to live normal life, but INT0 happened
 
 DAY 1
 
+/------------------------------------------------------\
+DAY 2 "BIRTH of "USSR * DIE OF EUROPEAN UNION" DUALITY" \
+DAY 3 Kyiv MOTHERLEND OF ARIAs, THE UKRAINIAN ancients \  /
+DAY 4 return LOVE -> LANDING EUROPE ->  ASIA  -- >    /  
+... -> continent and "TRUMP" GC                     \
+DAY 5 RZECH POSPOLITA<<<<< SKARBINCA NARODOW ZEMI      /
+DAY 6 OMEGA AND EDEM                                    \
+DAY 7 freedom for all                                   /
+\------------EARTH--SENSE ENGINE -----------------------\
 ⏸==
 ⏸||||||||||||||x
 ⏸M/= GAME//////X
@@ -26,5 +35,4 @@ DAY 1
 .
 /
 
-⏳⏳⏳ timeout
-
+convert to 2D...
